@@ -43,3 +43,4 @@ Make your work public to share it and get upvoted.
 - You can check the time left to submit on the counter at the top of this page.
 
 Note: Please make sure you're 18+ years old and are allowed to take part in a skill-based competition from your country.
+
